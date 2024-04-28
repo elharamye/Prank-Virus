@@ -11,3 +11,7 @@ If you have any concerns about using this file or have any questions regarding i
 Thank you for your understanding and cooperation in ensuring this file is used appropriately and responsibly.
 
 In case, I will not be responsible.
+
+![image](https://github.com/Matt0yt/Prank-Virus/assets/138054380/846bd224-9cb3-4b06-9f1a-dfa11102143c)
+
+
