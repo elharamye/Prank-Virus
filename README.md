@@ -12,6 +12,5 @@ Thank you for your understanding and cooperation in ensuring this file is used a
 
 In case, I will not be responsible.
 
-![image](https://github.com/Matt0yt/Prank-Virus/assets/138054380/846bd224-9cb3-4b06-9f1a-dfa11102143c)
 
-
+![ARCHOL SL  ML (1)](https://github.com/Matt0yt/Prank-Virus/assets/138054380/79cceac1-8d5d-49fe-996c-8385adad8c73)
