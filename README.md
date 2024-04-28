@@ -1,4 +1,7 @@
-Important notice: Do not use this file to create viruses
+**This file creates more windows when someone try to close him**
+
+
+# Important notice: Do not use this file to create viruses
 
 This file was created for entertainment purposes only and has no intention of being used for malicious or illegal purposes. Anyone who accesses this file please understand and respect the importance of producing ethically and responsibly.
 
